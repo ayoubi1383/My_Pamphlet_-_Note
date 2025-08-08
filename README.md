@@ -1,0 +1,1 @@
+##  this is my Note and Pamphlet  for learning every things that i want
